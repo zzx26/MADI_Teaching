@@ -1,2 +1,2 @@
 # MADI_Teaching
-Trying to make MADI great again
+You will not laugh. You will not cry. You will learn by the numbers. I will teach you.
